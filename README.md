@@ -1,2 +1,1 @@
-M béo
-đeada
+mẹ mày vô cùng béo
