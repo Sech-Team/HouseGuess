@@ -1,2 +1,1 @@
-M béo
-đeada
+là sao
